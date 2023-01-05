@@ -1,0 +1,1 @@
+Forrás kód és exe linkje: https://drive.google.com/drive/folders/1-5V9Tlg7CPAgXlMP5FIRiNctoewfvNXD?usp=sharing
